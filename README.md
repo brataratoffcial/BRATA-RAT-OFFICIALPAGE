@@ -107,6 +107,6 @@ email ID brataratofficialpage@gmail.com
 
 --------------
 
-This project is licensed to BRATARATOFFICIAL@GMAIL.COM
+This project is licensed to brataratofficialpage@gmail.com
 
 #BRATA #BRATARAT #BRATAMALWARE #BRATASPYWARE #BRAZILLIANRAT #BRAZIL
