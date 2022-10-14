@@ -1,6 +1,9 @@
 # BRATA RAT OFFICIAL PAGE
 BRATA RAT  - Advanced Android Remote Tool since 2018 - 2022
 
+# whatsapp number 
+email ID 
+brataratofficialpage@gmail.com
 ![Untitled](https://i.imgur.com/OiUOU2n.jpg)
 
 Brazilian Rat ( Brata Rat )
@@ -52,9 +55,9 @@ Fully Undetectable and Persistent.
 
 
 ```
-https://t.me/nocrimer
+
 ```
-[TELEGRAM CONTACT](https://t.me/nocrimer) 
+# WhatsApp number +1 (959) 209-9622
 
 <!-- PRIVATE VERSION -->
 ## Private Version
@@ -83,9 +86,11 @@ Many More
 
 
 ```
-https://t.me/nocrimer
-```
-[TELEGRAM CONTACT](https://t.me/nocrimer) 
+
+``` 
+# WhatsApp number +1 (959) 209-9622
+
+email ID brataratofficialpage@gmail.com
 .
 
 .
