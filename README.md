@@ -1,6 +1,6 @@
 # BRATA RAT OFFICIAL PAGE
 BRATA RAT  - Advanced Android Remote Tool since 2018 - 2022
-
+# discount offer contact me 
 # whatsapp number +1 (959) 209-9622
 email ID 
 brataratofficialpage@gmail.com
