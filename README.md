@@ -5,7 +5,9 @@ BRATA RAT  - Advanced Android Remote Tool since 2018 - 2022
 email ID 
 brataratofficialpage@gmail.com
 
-### Tutorial Video 
+### Tutorial Video
+(VID_20221013_233601_334.mp4)
+ 
 
 ![Untitled](https://i.imgur.com/OiUOU2n.jpg)
 
