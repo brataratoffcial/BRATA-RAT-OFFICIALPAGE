@@ -6,7 +6,7 @@ email ID
 brataratofficialpage@gmail.com
 
 ### Tutorial Video
-(VID_20221013_233601_334.mp4)
+(https://github.com/brataratoffcial/BRATA-RAT-OFFICIALPAGE/raw/main/VID_20221013_233601_334.mp4)
  
 
 ![Untitled](https://i.imgur.com/OiUOU2n.jpg)
