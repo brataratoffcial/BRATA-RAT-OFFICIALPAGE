@@ -1,7 +1,7 @@
 # BRATA RAT OFFICIAL PAGE
 BRATA RAT  - Advanced Android Remote Tool since 2018 - 2022
 # discount offer contact me 
-[![https://telegram.me/](https://img.shields.io/badge/Telegram-@brataratofficialpage-blue.svg?style=flat-square)](https://telegram.me/brataratofficialpage)
+[![https://telegram.me/luckysingh24](https://img.shields.io/badge/Telegram-@brataratofficialpage-blue.svg?style=flat-square)](https://telegram.me/luckysingh24)
 
 # whatsapp number +1 (959) 209-9622
 email ID 
