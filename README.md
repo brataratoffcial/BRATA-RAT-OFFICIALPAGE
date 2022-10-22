@@ -67,7 +67,7 @@ Fully Undetectable and Persistent.
 
 ```
 # WhatsApp number +1 (959) 209-9622
-
+[![https://telegram.me/luckysingh24](https://img.shields.io/badge/Telegram-@brataratofficialpage-blue.svg?style=flat-square)](https://telegram.me/luckysingh24)
 <!-- PRIVATE VERSION -->
 ## Private Version
 
